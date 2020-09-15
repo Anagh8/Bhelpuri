@@ -1,0 +1,1 @@
+A basic bhel puri can be made with puffed rice, roasted peanuts, sev or mixture, onions, tomatoes, chaat masala, lemon juice, salt & coriander leaves.
